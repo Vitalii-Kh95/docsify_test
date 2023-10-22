@@ -21,7 +21,6 @@
 * ~~Умею зачёркивать текст~~
 * ___Молодец___
 
-[Ссылка на видео с котиком](https://youtube.com/shorts/lcXMAfVekyM?si=ycwccy1bThxggeqQ "Мур Мур Мяу")
 
 
 Другие навыки:
